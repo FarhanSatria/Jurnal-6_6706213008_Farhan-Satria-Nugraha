@@ -1,0 +1,1 @@
+# Jurnal-6_6706213008_Farhan-Satria-Nugraha
